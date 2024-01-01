@@ -6,7 +6,8 @@
 
 ## Reference
 
-![](https://hasbropulse.com/products/star-wars-the-black-series-darth-vader-force-fx-elite-lightsaber)
+![image](https://github.com/405-not-found/LightSaber/assets/98379785/9d669f2b-66b7-4a53-bc33-0cfa71a3abe2)
+
 
 
 
